@@ -1,0 +1,6 @@
+
+THE DIFFERENCE BETWEEN THEORY, BELIEFS AND KNOWLEDGE (DEEP INSIGHT).md
+
+
+理论-转变为信念- 信念转变到现实中 - 由虚转实
+
